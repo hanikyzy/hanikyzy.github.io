@@ -1,2 +1,7 @@
-# hanikyzy.github.io
-hanikyzy
+# 哈妮克孜
+
+خانقىز ئۆمەر‎
+
+hanikyzy.com
+
+hanikyzi.cn
